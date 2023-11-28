@@ -1,6 +1,6 @@
 # Animals for coriander
 
-![MicoLeao](https://upload.wikimedia.org/wikipedia/commons/8/87/Golden_lion_tamarin_portrait3.jpg)
+![MicoLeao](https://www.infoescola.com/wp-content/uploads/2018/03/mico-leão-dourado_159838490.jpg)
 
 ![Porco](https://i.ytimg.com/vi/z-I1NnA8DuM/maxresdefault.jpg)
 
